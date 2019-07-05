@@ -4,7 +4,7 @@
 
 2 - Team:
 
-3 - Troy Christian Garcia
+3 - TROY CHRISTIAN GARCIA
 
 4 - 
 
