@@ -4,8 +4,9 @@
 
 2 - Team:
 Majed Atwi
+Troy Christian Garcia
 
-3 - TROY CHRISTIAN GARCIA
+3 - 
 
 4 - 
 
