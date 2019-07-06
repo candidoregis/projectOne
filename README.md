@@ -3,7 +3,7 @@
 1 - Project Name:
 
 2 - Team:
-Majed Atwi
+{Majed Atwi}
 Troy Christian Garcia
 
 3 - 
